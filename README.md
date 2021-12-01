@@ -1,0 +1,4 @@
+- Hi, I'm Dillion!
+- I'm able to speak Norwegian & English
+- I know JavaScript
+- Discord: totallydilly#1127
